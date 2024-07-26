@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Surya Narayan Dash
-- 👀 I’m interested in Web Development, Data Structures and cool shit
+- 👀 I’m interested in Web Development, Data Structures and cool stuff
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on major projects
 - 📫 How to reach me: ig: https://www.instagram.com/surya___dash967/
